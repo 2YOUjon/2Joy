@@ -1,1 +1,1 @@
-xzxdыzcaф# 2Joy
+aф# 2Joy
