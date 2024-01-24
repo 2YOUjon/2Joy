@@ -2,10 +2,7 @@ asasq  waф# 2Joy
 sdsddsdas
 asasdadadanbnbn
 azzzxa
-aasccsfdffdsfdsfsf
-xxdxA
-ccscasc
-sdadafs
+aas
 efsdfsfsdf
 hgfhfhfhfh
 rstsegrgsrgsreg
